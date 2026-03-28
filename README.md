@@ -1,0 +1,1 @@
+# AI-GreenSkills-Workshop-NMIET-2026
